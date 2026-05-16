@@ -1,4 +1,4 @@
-# 
+# Polymarket instant Strategy: backtesting & decentralized-trading is the best Polymarket strategy, featuring backtesting and decentralized-trading. Smart, fast, and optimized for
 
 
 
